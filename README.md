@@ -6,3 +6,4 @@ Soy un amante de la programación, bastante amateur, pero que intento compensarl
 ### Alguna otras cosas que me gustan:
 
 - Andar en bici&nbsp;:biking_man:
+- Escuchar Musica, **Oasis, Soda Stereo**&nbsp;:headphones:
